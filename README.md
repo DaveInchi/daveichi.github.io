@@ -1,1 +1,0 @@
-# DaveIchi.github.io
